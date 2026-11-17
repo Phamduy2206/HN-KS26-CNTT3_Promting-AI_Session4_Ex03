@@ -1,1 +1,1 @@
-# HN-KS26-CNTT3_Promting-AI_Session4_Ex04
+# HN-KS26-CNTT3_Promting-AI_Session4_Ex03
